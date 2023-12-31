@@ -1,1 +1,1 @@
-# note
+[# note](https://www.tiktok.com/@westan715/video/7180639070614293786?is_from_webapp=1&sender_device=pc&web_id=7318545434018907694)https://www.tiktok.com/@westan715/video/7180639070614293786?is_from_webapp=1&sender_device=pc&web_id=7318545434018907694
