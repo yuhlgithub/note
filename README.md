@@ -1,1 +1,10 @@
-[# note](https://www.tiktok.com/@westan715/video/7180639070614293786?is_from_webapp=1&sender_device=pc&web_id=7318545434018907694)https://www.tiktok.com/@westan715/video/7180639070614293786?is_from_webapp=1&sender_device=pc&web_id=7318545434018907694
+TikTok免拔卡安卓
+TikTok免拔卡安卓版本下载
+TikTok免拔卡1：点击下载>>
+TikTok免拔卡2：点击下载>>
+TikTok免拔卡3：点击下载>>
+
+MIUI 14 TikTok安卓方法>>
+
+TikTok iOS 免拔卡教程：https://youtu.be/cIjUC3AIS_I
+电报：https://t.me/tiktokfx
